@@ -24,3 +24,6 @@ Fortalecer mi confianza al expresarme en clases y en grupos de estudio.
 🌱 Objetivo personal:
 Desarrollar constancia y mantener mis compromisos personales y académicos.
 
+Ultima parte:
+https://trello.com/invite/b/6807e6d140405eb9447555e1/ATTIcbf4c7aeda756f037216372bff1d52faA93C9B6E/proyecto-de-vida
+
